@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi Coder 👋
 
 - 🔭 I’m currently working on Software House 
 - 🌱 I’m currently learning about business, SEO, programming and everything.

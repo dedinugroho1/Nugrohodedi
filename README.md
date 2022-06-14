@@ -5,4 +5,3 @@
 - 👯 I'm looking to collaborate on everybody
 - 💬 Ask me about everything
 - I'am enjoy blogging in my spare time
-- Owner sejasaweb.com
